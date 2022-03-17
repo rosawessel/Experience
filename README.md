@@ -1,5 +1,4 @@
-## **Experience**
-*[View Experience on LinkedIn Online](https://www.linkedin.com/in/rosa-wessel-904101218/details/experience/)*  
+## **Experience** 
 *[Back to Midterm Project](https://github.com/rosawessel/midterm/blob/main/README.md)*
 
 ### **Medical Assistant**  
