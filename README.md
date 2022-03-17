@@ -1,5 +1,5 @@
 ## **Experience**
-*[LinkedIn Experience Online](https://www.linkedin.com/in/rosa-wessel-904101218/details/experience/)*
+*[LinkedIn Experience Online](https://www.linkedin.com/in/rosa-wessel-904101218/details/experience/)*  
 *[Back to Project](https://github.com/rosawessel/midterm/blob/main/README.md)*
 ### **Medical Assistant**  
 Forefront Dermatology · Part-time  
