@@ -27,14 +27,3 @@ May 2019 - Aug 2020 · 1 yr 4 mos
 Ellisville, Missouri, United States  
 -Enhanced quality customer service by efficiently communicating with consumers to take accurate orders at the cash register  
 -Accurately facilitated and prepared customer orders  
-
-
-
-
-
-
-
-
-
-
-
